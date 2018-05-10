@@ -1,0 +1,1 @@
+# scs-bootcamp-tuesday-thursday
